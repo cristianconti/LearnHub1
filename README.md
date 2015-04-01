@@ -3,4 +3,5 @@ Just trying..
 o
 Va tutto bene, almeno sembra
 
-Ho capito come funziona, forswe
+Ho capito come funziona, forsweasas
+asa
